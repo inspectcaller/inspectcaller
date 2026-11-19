@@ -147,8 +147,8 @@ Any such integration will depend on official API access, agreements, applicable 
 
 Leading Inspect Caller's vision, product direction and global anti-fraud technology strategy.
 
-### Nila Akter
-**Co-Founder & Team Leader**
+### Sornika Sayoni Trisha 
+**Chairmen & Co-Founder **
 
 Supporting operations, team coordination, growth and platform development.
 
@@ -246,7 +246,8 @@ Please review:
 
 ## 📧 Contact
 
-**Founder & CEO:**  
+**CHAIRMAN & CEO:**  
+Sornika Sayoni Trisha 
 Mohammad Sajedur Rahman Biplob
 
 **Email:**  
